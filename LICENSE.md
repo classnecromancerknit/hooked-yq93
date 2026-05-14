@@ -1,4 +1,4 @@
-#  
+#  new hooked Scripts offers the most advanced hooked Script, with undetectable and unlimited stamina. Perfect for dominating any match.
 
 
 
